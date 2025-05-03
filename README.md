@@ -96,6 +96,6 @@ Les contributions sont bienvenues ! Veuillez créer une issue pour discuter des 
 
 ---
 
-Réalisé avec ❤️ par Pony
+Réalisé avec ❤️ par Pony Victor et Erica Diffo
 
 Mai 2025
